@@ -1,5 +1,11 @@
 # tp-1
 
+<img width="1917" height="523" alt="image" src="https://github.com/user-attachments/assets/40804810-9380-4dfe-b7d9-eeae20afd7a3" />
+
+<img width="1906" height="820" alt="image" src="https://github.com/user-attachments/assets/e121281a-d3b8-423d-b87e-e41b83521f6e" />
+
+<img width="1013" height="703" alt="image" src="https://github.com/user-attachments/assets/e3ae0d5a-845b-402a-b77e-2835a0a489ba" />
+
 <img width="695" height="576" alt="image" src="https://github.com/user-attachments/assets/68dad88d-2983-4d76-8215-b0b6229b3c2b" />
 
 <img width="748" height="387" alt="image" src="https://github.com/user-attachments/assets/4af5b93e-f81b-4312-87e7-75eb8de2019f" />
